@@ -21,7 +21,5 @@
 
 - **NCC Cadet (2021-2024)**, NCC 'C' Certificate with 'B' grade.
 
-## Contact Me
-
-📞 **Phone**: +91-9751982723  
+## Contact Me 
 📧 **Email**: [yukeshstark13@gmail.com](mailto:yukeshstark13@gmail.com)
